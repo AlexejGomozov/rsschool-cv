@@ -5,7 +5,7 @@
 
 ### _Residence:_  Prague
 ### _E-mail:_ alexgomozov1901@gmail.com  
-### [Linkedin <--](https://www.linkedin.com/in/alexejgomozov-massage)  [--> Instagram](https://www.instagram.com/alexey_gomozov/) 
+### [@ --> Linkedin ](https://www.linkedin.com/in/alexejgomozov-massage)  [ @ --> Instagram](https://www.instagram.com/alexey_gomozov/) 
 ### _Tel.:_  +420 605 305 823
 # _______________________________
 
